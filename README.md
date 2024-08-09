@@ -35,6 +35,7 @@
 |[sm33827330](https://www.nicovideo.jp/watch/sm33827330)|カービィとマルクのエ○画像集|
 |[sm33846487](https://www.nicovideo.jp/watch/sm33846487)|Hisamotone|
 |[sm34096323](https://www.nicovideo.jp/watch/sm34096323)|魔や敵を粉砕月|
+|[sm34151838](https://www.nicovideo.jp/watch/sm34151838)|ゆでたまごのひとこと縛りでスーパーマリオワールド合作|
 |[sm34244293](https://www.nicovideo.jp/watch/sm34244293)|全てあたまの所為です。|
 |[sm34429033](https://www.nicovideo.jp/watch/sm34429033)|表情を付けられた石川の勧誘|
 |[sm34502332](https://www.nicovideo.jp/watch/sm34502332)|....β|
