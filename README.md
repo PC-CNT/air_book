@@ -42,6 +42,7 @@
 |[sm34502332](https://www.nicovideo.jp/watch/sm34502332)|....β|
 |[sm34595197](https://www.nicovideo.jp/watch/sm34595197)|久本雅美の頭が嬉しくて感動でカービィのBGMに合わせて爆発したようです。|
 |[sm34698550](https://www.nicovideo.jp/watch/sm34698550)|久又|
+|[sm34820870](https://www.nicovideo.jp/watch/sm34820870)|犬みたいな子を後ろから・・・|
 |[sm34825079](https://www.nicovideo.jp/watch/sm34825079)|信濃～SGI がんばれイシカワ2|
 |[sm35058953](https://www.nicovideo.jp/watch/sm35058953)|男子部のグルメレース|
 |[sm35375072](https://www.nicovideo.jp/watch/sm35375072)|恋のマエアヒ|
